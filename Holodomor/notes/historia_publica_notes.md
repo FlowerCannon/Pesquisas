@@ -68,3 +68,56 @@ Hearst e o jornal oficial do partido nazista repercutiu a história.
 vídeo ele só vai falar de como a suposta mentira foi usada e reaproveitada
 várias vezes, dividindo as suas épocas de uso no Macartismo, década de 80 e
 uso recente, dentro do contexto da guerra da Ucrânia.
+
+- 44:14: Ok, vou admitir que achei engraçado ele fazer essa comparação do
+documentário ruim com o formato do Brasil Paralelo. Mas na real, isso me parece
+forcação dele.
+
+- Ver melhor sobre o Robert Conquest e sua carreira como historiador oficial do
+anticomunismo.
+
+- Interessante ele citar a forma como a narrativa do Holodomor é usada para
+empurrar outras narrativas, para legitimar visões de mundo. Me lembra um outro
+suposto genocídio que é usado da exata mesma forma. Bom, só digo que aqui fica
+implícita a hipocrisia dos comunistas.
+
+- 57:00: De acordo. O fato da fome ter se espalhado para outros lugares da união
+soviética é um golpe fatal de que foi um genocídio direcionado a ucranianos.
+Afinal, se o objetivo era matar ucranianos, porque deixaram a fome se espalhar
+para outros lugares?
+
+- 58:15: Aqui ele finalmente da narrativa negacionista que diz que foram Kulaks
+(fazendeiros ricos, que nós chamaríamos de latifundiários) que sabotaram a
+produção de propósito; com queimas de plantações, chacina do gado etc, já que
+eles estavam se recusando a coletizar suas terras.
+
+- 59:00: Como assim eles já sabiam que seriam invadidos pelos nazistas já em
+1933? Aqui ele pode estar flagrantemente mentindo. Elaborar mais esse ponto.
+Entre os comunistas é comum uma mentalidade do Stalin como um herói antifascista
+que estava planejando a gloriosa destruição do mesmo desde o início. Não, claro
+que não. Há vários detalhes: operação Grozna; pacto Ribbentrop-Molotov; a
+cooperação comercial escancarada entre os dois países; uma possível entrada não
+efetivada da URSS no eixo etc.
+
+- 1:00:00: Esse argumento é dúbio. Ele diz que a coletivização forçada foi
+justificada por causa de uma possível guerra. Mas hein? De novo, isso foi em
+1933, a guerra  só começaria em 1939. Ele também admitiu que houve confisco
+de grão por parte da URSS, e tenta justificar isso dizendo que a política era
+necessária porque a URSS precisava exportar grãos pra realizar sua rápida
+industrialização e ter capacidade física de segurar uma futura guerra e
+competição econômica com outros países.
+
+- Com tudo isso considerado, o que me parece mais razoável é dizer que a fome
+foi resultado conjunto de problemas climáticos, sabotagem por parte de
+latifundiários, ingerência e incompetência das autoridades soviéticas em
+administrar a produção e distribuição de grãos. Este último item é incômodo
+para comunistas, que os forçaria a admitir fracassos trágicos no plano de
+coletivização soviético, mesmo que não seja possível embasar uma tese de
+genocídio planejado com esse fato em mãos. Some-se a isso a oportunismo de
+adversários (principalmente nazistas, de acordo com comunistas, mas eu tendo
+a duvidar disso), e aí está a origem da narrativa do Holodomor.
+
+- O confisco continuou em 1934?
+
+- Ele alega que muitas mortes foram por doenças como Malária e outras que se
+espalham através da água.
