@@ -9,3 +9,4 @@ mentira contada pelo Hoje no Mundo Militar e a direita) adicionada.
 - Fonte secundária (Um Outro Olhar Sobre Stáline, Ludo Martens) adicionada.
 - Fonte secundária (The Holodomor Genocide Question: How Wikipedia Lies to You)
 adicionada.
+- Anotações iniciais sobre o vídeo do História Pública adicionadas.
