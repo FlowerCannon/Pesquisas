@@ -12,25 +12,25 @@ Stalin) e que nega o ocorrência dessa política, chamarei de negacionista.
 
 # Lista livre de referências, autores, links e textos
 
-Anne Applebaum
-Arch Getty
-Davis
-Domenico Losurdo
-Douglas Tottle
-Eric Hobsbawn
-Grover Furr
-Henry Kissinger
-Jean-Jacques Marie
-Kevin Murphy
-Ludo Martens
-Moshe Lewin
-Oleg Khlevniuk
-Paul Kennedy
-Richard J Evans
-Robert Conquest
-Stephen Wheatcroft
-Van der Linden
-Wendy Goldman
+- Anne Applebaum
+- Arch Getty
+- Davis
+- Domenico Losurdo
+- Douglas Tottle
+- Eric Hobsbawn
+- Grover Furr
+- Henry Kissinger
+- Jean-Jacques Marie
+- Kevin Murphy
+- Ludo Martens
+- Moshe Lewin
+- Oleg Khlevniuk
+- Paul Kennedy
+- Richard J Evans
+- Robert Conquest
+- Stephen Wheatcroft
+- Van der Linden
+- Wendy Goldman
 
 1. https://avoyager.net/politica/ideologia/estalinismo/neostalinismo/
 1. https://www.marxists.org/portugues/martens/1994/olhar/09.htm
